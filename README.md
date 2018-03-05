@@ -1,0 +1,2 @@
+# animecim
+https://animekonusu.com/
